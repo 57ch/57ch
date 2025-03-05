@@ -1,3 +1,4 @@
 please dnc my skins, ask for inspo.︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎c+h and int are okay!!︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎no respond = afk/offtab
-![5b4ea0511ed76e89bc7f25d683cb6cbe](https://github.com/user-attachments/assets/a2030975-ef68-4515-8db5-ad8cb1ca61cb)
+︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎
+![](https://i.pinimg.com/736x/c3/70/67/c3706792e0c9d6cc01ac14685ea6518c.jpg)
 
