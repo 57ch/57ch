@@ -1,3 +1,3 @@
 c+h ,, dnc+inspo . feel free 2 int !! lalalala ![](https://xyz.crd.co/assets/images/gallery18/e7815016.gif?v=c7fc68ed)
 
-![](https://i.pinimg.com/736x/fc/e3/31/fce331f3b1de8b6c19e188e8ffb17eb4.jpg)
+![](https://www.youtube.com/channel/UCVhu96sGZTXk3qmxP16kW9A/community?lb=UgkxXYry82NlRjsud8M7Rd2-0Zt32fP4nTLC)
