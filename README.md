@@ -2,11 +2,9 @@
 
 ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎_☆_
 
-any1 is **free to int or even c+h** !! i don't mind at all c: don't expect me to interact first tho,, i sometimes  hesitate to interact if you're not my mutual
+any1 is **free to int or even c+h** !! i don't mind at all c: don't expect me to interact first tho,, i sometime hesitate to interact if you're not my mutual
 
 pleasee **do not copy my skins**. ask for approval of inspiration 
-
-tonetags aren't preferred, but appreciated.
 
 if i bring discomfort to you, pleasepleasePLEASE inform me! I tend to get carried away easily i'm afraid :[
 
