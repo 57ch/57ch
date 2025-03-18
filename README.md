@@ -2,7 +2,7 @@
 
 ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎_☆_
 
-any1 is **free to int or even c+h** !! i don't mind at all c: don't expect me to interact first tho,, i sometimes  hesitate to 
+any1 is **free to int or even c+h** !! i don't mind at all c: don't expect me to interact first tho,, i sometimes  hesitate to interact if you're not my mutual
 
 pleasee **do not copy my skins**. ask for approval of inspiration 
 
