@@ -6,7 +6,7 @@ any1 is **free to int or even c+h** !! i don't mind at all c: don't expect me to
 
 pleasee **do not copy my skins**. ask for approval of inspiration 
 
-yeah i do rp!! jst dont force me into it tho
+yeah i do rp!! jst dont force me into it 
 
 if i bring discomfort to you, pleasepleasePLEASE inform me! I tend to get carried away easily i'm afraid :[
 
