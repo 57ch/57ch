@@ -14,4 +14,4 @@ yeah i do roleplays!! jst don't force me into your rp tho
 if i bring discomfort, please tell me.
 
 
-![](https://yt3.ggpht.com/MV2hxB7QZrzJJqzDUEEiOoS2Ibq0yIgmJE87rGXLCCFGoY-vaVNGcecbjB9eE8KNebzTMKHV_M_3Dw=s640-c-fcrop64=1,00000000ffffffff-rw-nd-v1)
+![](https://i.pinimg.com/736x/d6/38/ff/d638fff4c7c2593fd2522257a3fdeb0a.jpg)
