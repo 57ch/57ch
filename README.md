@@ -14,4 +14,4 @@ yeah i do roleplays!! I would mostly use the thinking bubble if im in character 
 if i bring discomfort, please tell me.
 
 
-![](https://i.pinimg.com/736x/d6/38/ff/d638fff4c7c2593fd2522257a3fdeb0a.jpg)
+![](https://i.pinimg.com/736x/eb/b6/7e/ebb67e66c6f8c758f5c3539056ebb41a.jpg)
