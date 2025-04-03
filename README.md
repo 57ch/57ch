@@ -9,7 +9,7 @@ any1 is **free to int or even c+h** !! I'm afraid to approach people sometime, i
 
 pleasee **do not copy my skins**. ask for approval of inspiration 
 
-yeah i do roleplays!! I would mostly use the thinking bubble if im in character lololol
+yeah i do roleplays!! 
 
 if i bring discomfort, please tell me.
 
