@@ -9,7 +9,9 @@ any1 is **free to int or even c+h** !! I'm afraid to approach people sometime, i
 
 pleasee **do not copy my skins**. ask for approval of inspiration 
 
-yeah i do roleplays!! 
+yeah i do roleplays!! I would to change my status if im roleplaying ya
+
+If I'm sleeping, I wouldn't likely respond to you as i am offtab or somethingsomeghing 
 
 if i bring discomfort, please tell me.
 
