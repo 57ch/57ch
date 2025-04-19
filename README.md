@@ -13,7 +13,7 @@
 ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ I will have *looking for roleplay* as my status whenever im in a rp, soo pleasee don't take me srsly when i am roleplaying / in character!!
 
 
-![]()
+![](https://i.pinimg.com/736x/5c/b3/a0/5cb3a00e3487dbfa6c0cbd8f87d39939.jpg)
 
  ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎
  ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ **:3c**
