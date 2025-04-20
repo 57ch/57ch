@@ -4,7 +4,7 @@
 *I llllike Clock from the hitshow ITFT i think. I'm sane f,or him trust me*
 ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎
 
-＿　＿　＿　＿
+＿　＿　＿　＿ ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎✮
 
 ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ Don't be afraid to int!! **Any1** is free to c+h whenever I'm afk︎︎ (having *away* as my status)
 
