@@ -1,7 +1,7 @@
 ![](https://pixelbank.neocities.org/decome/kitties/40ea9b02.gif)  ︎︎ ︎︎︎ ︎︎ ︎︎**ponytown stuff** wooah
 
 **..Hii call me Kadi / Clock, i use any pronouns !!** ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎
-*I llllike Clock from the hitshow ITFT i think. I'm sane f,or him trust me*
+*I llllike Clock from the hitshow ITFT a lot. I'm sane f,or him trust me*
 ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎
 
 ＿　＿　＿　＿ ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎✮
