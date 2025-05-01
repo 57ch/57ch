@@ -1,10 +1,9 @@
 ![](https://pixelbank.neocities.org/decome/kitties/40ea9b02.gif)  ︎︎ ︎︎︎ ︎︎ ︎︎**ponytown stuff** wooah
 
-**..Hii call me Kadi / Clock, i use any pronouns !!** ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎
-*I llllike Clock from the hitshow ITFT a lot. I'm sane f,or him trust me*
+**Hii call me Kadi / Clock, i use any pronouns !!** ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎
 ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎
 
-＿　＿　＿　＿ ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎✮
+ ︎ ︎︎ ︎︎ ︎-✮
 
 ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ Don't be afraid to int!! **Any1** is free to c+h whenever I'm afk︎︎ (having *away* as my status)
 
