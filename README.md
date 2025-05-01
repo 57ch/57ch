@@ -1,6 +1,6 @@
 ![](https://pixelbank.neocities.org/decome/kitties/40ea9b02.gif)  ︎︎ ︎︎︎ ︎︎ ︎︎c+h
 
 ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎︎ ︎︎ ︎︎ ︎︎
-︎︎ ︎︎︎ ![](https://i.pinimg.com/736x/c8/cd/6b/c8cd6b9bedc1df4829a78e7ee4428c0f.jpg)
+︎︎ ︎︎︎ ![](https://i.pinimg.com/736x/7a/09/b5/7a09b5221ed9ba725dad22c82b5a5a3c.jpg)
 
 ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎
