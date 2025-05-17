@@ -2,6 +2,6 @@
 
 ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎︎ ︎︎ ︎︎ ︎︎
 
-︎︎ ︎︎︎ ![](https://i.pinimg.com/736x/5b/4e/a0/5b4ea0511ed76e89bc7f25d683cb6cbe.jpg)
+︎︎ ︎︎︎ ![](https://media1.tenor.com/m/6sHZxvsj7EQAAAAC/itft-animatic-battle.gif)
 
 ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎
