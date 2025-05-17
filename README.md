@@ -2,6 +2,6 @@
 
 ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎︎ ︎︎ ︎︎ ︎︎
 
-︎︎ ︎︎︎ ![](https://media1.tenor.com/m/6sHZxvsj7EQAAAAC/itft-animatic-battle.gif)
+︎︎ ︎![](https://tenor.com/view/clock-itft-clock-it's-time-for-the-clock-it's-time-for-the-itft-gif-12221221569558481144)
 
 ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎
