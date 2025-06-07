@@ -1,5 +1,3 @@
 
 
-![]()  ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎![clock-itft](https://github.com/user-attachments/assets/42018be0-ecd3-4bea-af22-9f2fd17e1234)
-
-
+![](https://i.pinimg.com/736x/90/0a/f5/900af50effb96d8c0331ba74b5c883d8.jpg)
