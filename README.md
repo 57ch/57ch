@@ -4,4 +4,6 @@ pony.town stuff wow
 
 ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎Don't expect me to int first, i am diffident.
 
-︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎Uhh...r.r i may not respond if i have ⛔/🌙 as my status
+︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎Uhh...r.r i may not respond if i have ⛔/🌙 as my status..
+
+︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎Anyone, friends or strangers are completely free to c+h :]]
