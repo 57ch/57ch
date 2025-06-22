@@ -23,4 +23,4 @@ pony.town stuff wow ![](https://yokai.crd.co/assets/images/gallery02/0ecd65bb.gi
 ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎
 ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎lalala
 
-![](https://static.wikia.nocookie.net/itstimeforthe/images/4/4e/ClockNew.png/revision/latest?cb=20250522033446)
+![]()
