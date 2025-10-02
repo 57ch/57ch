@@ -1,4 +1,4 @@
-( ꩜ ᯅ ꩜;) ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ **any1 is allowed to c+h!! no permission needed :]**
+Anyone is allowed to c+h!! No need to ask for it! 
 
 
 
